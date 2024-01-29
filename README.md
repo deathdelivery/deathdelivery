@@ -1,5 +1,5 @@
 ### nyanyanya
-![[Uploading image.png…](https://pbs.twimg.com/media/GEHykR0XYAAclO7?format=png&name=900x900)]()
+![](https://pbs.twimg.com/media/GEHykR0XYAAclO7?format=png&name=900x900)
 
 
 <!--
