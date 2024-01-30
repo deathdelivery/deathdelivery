@@ -9,7 +9,7 @@ TERU ^_^
 WHISP 2 INT!! I MIGHT BE OFFTAB!!
 <br>
 <br>
-[fun, natural fun!](https://youtu.be/Gxc-Yn5-YT4?)
+[gfgf](https://youtube.com)
 </p>
 
 
