@@ -7,9 +7,6 @@
 TERU ^_^
 <br>
 WHISP 2 INT!! I MIGHT BE OFFTAB!!
-<br>
-<br>
-<dhjdjs src="https://youtu.be/Gxc-Yn5-YT4?feature=shared">
 </p>
 
 
