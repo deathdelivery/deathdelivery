@@ -9,7 +9,7 @@ TERU ^_^
 WHISP 2 INT!! I MIGHT BE OFFTAB!!
 <br>
 <br>
-  ![dshaj](https://youtu.be/Gxc-Yn5-YT4?feature=shared)
+<dhjdjs src="https://youtu.be/Gxc-Yn5-YT4?feature=shared">
 </p>
 
 
