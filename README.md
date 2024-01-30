@@ -7,7 +7,14 @@
 TERU ^_^
 <br>
 WHISP 2 INT!! I MIGHT BE OFFTAB!!
+<br>
+<br>
+What you gonna do when you get out of jail?
+i'm gonna have some fun
+what do you consider fun?
+fun, natural fun!
 </p>
+
 
 
 <!--
