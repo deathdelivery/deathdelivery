@@ -7,6 +7,8 @@
 TERU OR ANYTHING YOU WANT TO CALL ME... I HAVE TEN THOUSSAND NAMES ASSIGNED BY DIFFERENT GROUPS EACH... ^_^
 <br>
 WHISP 2 INT!! I MIGHT BE OFFTAB!!
+<br>
+god bless dungeon meshi yuri and yaoi 
 </p>
 
 
