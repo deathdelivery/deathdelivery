@@ -12,7 +12,7 @@ god bless dungeon meshi yuri and yaoi
 </p>
 
 <p align="center">
-<image src="https://pbs.twimg.com/media/GFdKWinWMAA6l9d?format=jpg&name=medium">
+<image src="https://twitter.com/Kemafili1/status/1753952335192076303/photo/1">
 
 
 
