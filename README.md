@@ -9,7 +9,12 @@ TERU OR ANYTHING YOU WANT TO CALL ME... ^_^
 FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <br>
 god bless dungeon meshi yuri and yaoi 
+<br>
 </p>
+
+<p align="center">
+if i get this again i will kill you all
+<image src="https://media.discordapp.net/attachments/1079058779557077062/1204684677366157332/image.png?ex=65d5a109&is=65c32c09&hm=3784504d00d63469f0e69e529951f3deb8ea0a583a33f948e576cf58d467c0d7&=&format=webp&quality=lossless&width=223&height=74">
 
 <p align="center">
 <image src="https://media.discordapp.net/attachments/1079058779557077062/1203638152749916191/GFdKWinWMAA6l9d.png?ex=65d1d262&is=65bf5d62&hm=e433331089a6398129f8e37913cc4da7e54955a4495cc29f07287e78d6357a1b&=&format=webp&quality=lossless&width=544&height=532">
