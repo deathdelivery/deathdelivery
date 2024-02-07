@@ -10,6 +10,7 @@ FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <br>
 god bless dungeon meshi yuri and yaoi 
 <br>
+usually in a kaworu skin or ban hammer skin!
 </p>
 
 <p align="center">
