@@ -6,7 +6,7 @@
 <p align="center">
 TERU OR ANYTHING YOU WANT TO CALL ME... ^_^
 <br>
-WHISP 2 INT!! I MIGHT BE OFFTAB!!
+FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <br>
 god bless dungeon meshi yuri and yaoi 
 </p>
