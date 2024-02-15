@@ -12,9 +12,9 @@ FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 </p>
 
 <p align="center">
-:muscle::muscle: dont forget to love your friends!!!!!!!!!
+:muscle:
 <br>
-<image src="[https://media.discordapp.net/attachments/1079058779557077062/1204684677366157332/image.png?ex=65d5a109&is=65c32c09&hm=3784504d00d63469f0e69e529951f3deb8ea0a583a33f948e576cf58d467c0d7&=&format=webp&quality=lossless&width=223&height=74](https://media.discordapp.net/attachments/1079058859802497154/1207327854464077854/image.png?ex=65df3eaf&is=65ccc9af&hm=c5a035b486c642cbfa8879ad8ad306a3a6fde351be17c46e46637a436731e4fd&=&format=webp&quality=lossless&width=412&height=424)">
+<image src="https://media.discordapp.net/attachments/1079058859802497154/1207327854464077854/image.png?ex=65df3eaf&is=65ccc9af&hm=c5a035b486c642cbfa8879ad8ad306a3a6fde351be17c46e46637a436731e4fd&=&format=webp&quality=lossless&width=412&height=424">
 
 
 
