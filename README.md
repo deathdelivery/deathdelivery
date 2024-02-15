@@ -14,7 +14,7 @@ FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <p align="center">
 :muscle:
 <br>
-<image src="<div class="tenor-gif-embed" data-postid="27649395" data-share-method="host" data-aspect-ratio="1.05611" data-width="100%"><a href="https://tenor.com/view/smily-balls-rainbow-bouncing-happy-gif-27649395">Smily Balls GIF</a>from <a href="https://tenor.com/search/smily-gifs">Smily GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>">
+<image src="https://tenor.com/view/smily-balls-rainbow-bouncing-happy-gif-27649395">
 
 
 
