@@ -12,9 +12,9 @@ FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 </p>
 
 <p align="center">
-:muscle:
+
 <br>
-<image src="https://tenor.com/view/smily-balls-rainbow-bouncing-happy-gif-27649395">
+
 
 
 
