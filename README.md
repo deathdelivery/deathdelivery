@@ -14,7 +14,7 @@ FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <p align="center">
 :muscle:
 <br>
-<image src="https://media.discordapp.net/attachments/1079058859802497154/1207327854464077854/image.png?ex=65df3eaf&is=65ccc9af&hm=c5a035b486c642cbfa8879ad8ad306a3a6fde351be17c46e46637a436731e4fd&=&format=webp&quality=lossless&width=412&height=424">
+<image src="">
 
 
 
