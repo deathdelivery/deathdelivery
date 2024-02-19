@@ -4,7 +4,7 @@
 
 
 <p align="center">
-GHOUL OR ANYTHING YOU WANT TO CALL ME I DONT MIND AT ALL ... ^_^
+CALL ME ANYTHING IDK  ... ^_^
 <br>
 FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <br>
