@@ -12,6 +12,8 @@ FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 </p>
 
 <p align="center">
+<image src="https://media.discordapp.net/attachments/1101332284730261646/1209320878261928007/image.png?ex=65e67ed5&is=65d409d5&hm=fd2699e7fc83462c8b98ab5ed92fc18f4c28776c3ba76c1096b619ed29a6bf23&=&format=webp&quality=lossless&width=291&height=275">
+</p>
 
 <br>
 
