@@ -12,7 +12,8 @@ FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 </p>
 
 <p align="center">
-<image src="https://pbs.twimg.com/media/F9jLQD4XwAEM958.jpg">
+<image src="https://static.wikia.nocookie.net/regretevator/images/e/e7/MR.png/revision/latest/thumbnail/width/360/height/360?cb=20240104020844">
+
 </p>
 
 <br>
