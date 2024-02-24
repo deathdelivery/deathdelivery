@@ -10,8 +10,10 @@ FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <br>
 
 </p>
+</p>
 
 <p align="center">
+i like MR btw... if you even care haha twiddles thumb like an anime girl
 <image src="https://static.wikia.nocookie.net/regretevator/images/e/e7/MR.png/revision/latest/thumbnail/width/360/height/360?cb=20240104020844">
 
 </p>
