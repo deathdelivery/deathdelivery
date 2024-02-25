@@ -19,6 +19,7 @@ i like mr bttw haha twiddles thumb like an anime girl
 <image src="https://static.wikia.nocookie.net/regretevator/images/e/e7/MR.png/revision/latest/thumbnail/width/360/height/360?cb=20240104020844">
 <p></p>
 picture of me and mr having a tea party ❤️
+  <p align="center">
 <image src="https://media.discordapp.net/attachments/1079058779557077062/1211100130191867954/image.png?ex=65ecf7e4&is=65da82e4&hm=9f39a4e1713f05be09c71d42c02d8085e9a28001679f62ae8e3e32026cd6c63f&=&format=webp&quality=lossless&width=879&height=436">
 
 </p>
