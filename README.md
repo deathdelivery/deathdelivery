@@ -10,6 +10,9 @@ FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <br>
 <p align="center">
 <image  src="https://epic.crd.co/assets/images/gallery02/f8a1cdc1.gif?v=b52a0828">
+<br>
+<p align="center">
+<image src="https://media.discordapp.net/attachments/1205244082428059668/1209515018912137236/822_Sem_Titulo_20240220115004.png?ex=65e733a4&is=65d4bea4&hm=6cad58ec87228a8499d8ce950790e0df05890036ad6ee3ab4b4da77f7ddc6a01&=&format=webp&quality=lossless&width=120&height=202">
 
 
 
