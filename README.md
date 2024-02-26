@@ -9,7 +9,7 @@ CALL ME ANYTHING IDK  ... ^_^
 FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <br>
 <p align="center">
-<image  src="https://epic.crd.co/assets/images/gallery02/f8a1cdc1.gif?v=b52a0828">![f8a1cdc1](https://github.com/deathdelivery/deathdelivery/assets/121601229/3c2562f1-5384-4cde-a6a0-4941a860c17d)
+<image  src="https://epic.crd.co/assets/images/gallery02/f8a1cdc1.gif?v=b52a0828">
 
 
 </p>
