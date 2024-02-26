@@ -9,7 +9,7 @@ CALL ME ANYTHING IDK  ... ^_^
 FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <br>
 <p align="center">
-<image  src="https://epic.crd.co/assets/images/gallery02/f8a1cdc1.gif?v=b52a0828">
+<gif  src="https://epic.crd.co/assets/images/gallery02/f8a1cdc1.gif?v=b52a0828">
 
 </p>
 </p>
