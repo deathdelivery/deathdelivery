@@ -15,6 +15,9 @@ FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
 <image src="https://media.discordapp.net/attachments/1205244082428059668/1209515018912137236/822_Sem_Titulo_20240220115004.png?ex=65e733a4&is=65d4bea4&hm=6cad58ec87228a8499d8ce950790e0df05890036ad6ee3ab4b4da77f7ddc6a01&=&format=webp&quality=lossless&width=120&height=202">
 <br>
 <image src="https://i.redd.it/emnapsp6qgw81.jpg">
+<br>
+  this is an image of me shooting my friend ten thousand times and also burning them and also hammering them
+<image src="https://media.discordapp.net/attachments/1177998259613093969/1211166647348371506/image.png?ex=65ed35d7&is=65dac0d7&hm=28fd0754adaebfae915f3f71b81368e71a55b550253ab9f9bdb8c399ea5b71fc&=&format=webp&quality=lossless&width=309&height=265">
 
 
 
