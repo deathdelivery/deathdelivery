@@ -4,7 +4,7 @@
 
 
 <p align="center">
-feel free to int! i love meeting new people!
+feel free to int! i love meeting new people! <image src="https://64.media.tumblr.com/bfafc80b28ff5e16d3480debe28b426f/762a7abac4831275-16/s250x250_c1/839e241a2186d3e210cc2adb0b80aed384120bb4.gifv">
 <br>
 <p align="center">
 <image  src="https://epic.crd.co/assets/images/gallery02/f8a1cdc1.gif?v=b52a0828">
@@ -14,7 +14,7 @@ feel free to int! i love meeting new people!
 <br>
 <image src="https://i.redd.it/emnapsp6qgw81.jpg">
 <br>
-<image src="https://epic.crd.co/assets/images/gallery16/527de3b3.gif?v=b52a0828">
+
 </p>
 </p>
 
