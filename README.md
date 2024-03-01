@@ -14,7 +14,7 @@ feel free to int! i love meeting new people!
 <br>
 <image src="https://i.redd.it/emnapsp6qgw81.jpg">
 <br>
-<image src="https://epic.crd.co/assets/images/gallery16/527de3b3.gif?v=b52a0828>
+<image src="https://epic.crd.co/assets/images/gallery16/527de3b3.gif?v=b52a0828">
 </p>
 </p>
 
