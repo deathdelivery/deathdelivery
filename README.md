@@ -14,12 +14,7 @@ feel free to int! i love meeting new people!
 <br>
 <image src="https://i.redd.it/emnapsp6qgw81.jpg">
 <br>
-  this is an image of me shooting my friend ten thousand times and also burning them and also hammering them
-<image src="https://media.discordapp.net/attachments/1177998259613093969/1211166647348371506/image.png?ex=65ed35d7&is=65dac0d7&hm=28fd0754adaebfae915f3f71b81368e71a55b550253ab9f9bdb8c399ea5b71fc&=&format=webp&quality=lossless&width=309&height=265">
-
-<image src="https://epic.crd.co/assets/images/gallery16/527de3b3.gif?v=b52a0828">
-
-
+<image src="https://epic.crd.co/assets/images/gallery16/527de3b3.gif?v=b52a0828>
 </p>
 </p>
 
