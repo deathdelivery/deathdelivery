@@ -9,7 +9,7 @@ feel free to int! i love meeting new people!
   <image src="https://64.media.tumblr.com/bfafc80b28ff5e16d3480debe28b426f/762a7abac4831275-16/s250x250_c1/839e241a2186d3e210cc2adb0b80aed384120bb4.gifv">
 <br>
 <p align="center">
-<image  src="https://epic.crd.co/assets/images/gallery02/f8a1cdc1.gifv">
+<image  src="https://epic.crd.co/assets/images/gallery02/213665da.gif?v=b52a0828">
 <br>
 <p align="center">
 <image src="https://media.discordapp.net/attachments/1205244082428059668/1209515018912137236/822_Sem_Titulo_20240220115004.png?ex=65e733a4&is=65d4bea4&hm=6cad58ec87228a8499d8ce950790e0df05890036ad6ee3ab4b4da77f7ddc6a01&=&format=webp&quality=lossless&width=120&height=202">
