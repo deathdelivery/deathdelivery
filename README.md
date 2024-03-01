@@ -4,9 +4,7 @@
 
 
 <p align="center">
-CALL ME ANYTHING IDK  ... ^_^
-<br>
-FEEL FREE TO INT!!!! I LVOE MEETING NEW PEOPLE!!!!!!!
+feel free to int! i love meeting new people!
 <br>
 <p align="center">
 <image  src="https://epic.crd.co/assets/images/gallery02/f8a1cdc1.gif?v=b52a0828">
