@@ -14,10 +14,9 @@ could be sleeping most of the time haha
 <image  src="https://epic.crd.co/assets/images/gallery02/213665da.gif?v=b52a0828">
 <br>
 <image src="https://hosting.photobucket.com/albums/oo187/impishmidna/PIXELS/Anime/Pokemon/245-suicune-front.gif">
+<image src="https://hosting.photobucket.com/albums/oo187/impishmidna/PIXELS/Anime/Pokemon/157-typhlosion-front.gif">
 <br>
 <p align="center">
-<image src="https://media.discordapp.net/attachments/1205244082428059668/1209515018912137236/822_Sem_Titulo_20240220115004.png?ex=65e733a4&is=65d4bea4&hm=6cad58ec87228a8499d8ce950790e0df05890036ad6ee3ab4b4da77f7ddc6a01&=&format=webp&quality=lossless&width=120&height=202">
-<br>
 <image src="https://i.redd.it/emnapsp6qgw81.jpg">
 <br>
 
