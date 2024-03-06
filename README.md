@@ -17,7 +17,7 @@ could be sleeping most of the time haha
             <image src="https://files.catbox.moe/s5nx2o.png">
 
 <br>
-<image  src="https://i.gifer.com/KrrU.gif">
+<image src="https://i.gifer.com/KrrU.gif">
             
          
           
