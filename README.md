@@ -11,6 +11,7 @@ could be sleeping most of the time haha
   <image src="https://64.media.tumblr.com/bfafc80b28ff5e16d3480debe28b426f/762a7abac4831275-16/s250x250_c1/839e241a2186d3e210cc2adb0b80aed384120bb4.gifv">
     <image src="https://raining-starss.neocities.org/dark%20(2).jpg">
       <image src="https://raining-starss.neocities.org/blog%20(5).gif">
+        <image src="https://supplies.ju.mp/assets/images/gallery08/e07d03c5.png?v=9163b103">
 <br>
 <p align="center">
 <image  src="https://epic.crd.co/assets/images/gallery02/213665da.gif?v=b52a0828">
