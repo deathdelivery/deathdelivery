@@ -15,10 +15,7 @@ could be sleeping most of the time haha
 <br>
 <image src="https://hosting.photobucket.com/albums/oo187/impishmidna/PIXELS/Anime/Pokemon/245-suicune-front.gif">
 <image src="https://hosting.photobucket.com/albums/oo187/impishmidna/PIXELS/Anime/Pokemon/157-typhlosion-front.gif">
-<br>
-<p align="center">
-<image src="https://i.redd.it/emnapsp6qgw81.jpg">
-<br>
+
 
 </p>
 </p>
