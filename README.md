@@ -14,7 +14,7 @@ could be sleeping most of the time haha
         <image src="https://supplies.ju.mp/assets/images/gallery08/e07d03c5.png?v=9163b103">
           <image src="https://creep.crd.co/assets/images/gallery05/2f705cfe.png?v=9fb44b0b">
             <image src="https://creep.crd.co/assets/images/gallery05/bac21c4d.png?v=9fb44b0b">
-              <image src="https://i.imgur.com/L6227IQ.jpg">
+          
 <br>
 <p align="center">
 <image  src="https://epic.crd.co/assets/images/gallery02/213665da.gif?v=b52a0828">
