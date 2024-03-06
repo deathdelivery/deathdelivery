@@ -13,8 +13,7 @@ could be sleeping most of the time haha
 <p align="center">
 <image  src="https://epic.crd.co/assets/images/gallery02/213665da.gif?v=b52a0828">
 <br>
-<image src="https://hosting.photobucket.com/albums/oo187/impishmidna/PIXELS/Anime/Pokemon/245-suicune-front.gif">
-<image src="https://hosting.photobucket.com/albums/oo187/impishmidna/PIXELS/Anime/Pokemon/157-typhlosion-front.gif">
+
 
 
 </p>
