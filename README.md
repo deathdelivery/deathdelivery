@@ -6,7 +6,7 @@
 <p align="center">
 feel free to int! i love meeting new people! 
 <br>
-could be sleeping most of the time haha
+could be sleeping or afk most of the time fufufu!
   <br>
   <image src="https://64.media.tumblr.com/bfafc80b28ff5e16d3480debe28b426f/762a7abac4831275-16/s250x250_c1/839e241a2186d3e210cc2adb0b80aed384120bb4.gifv">
     <image src="https://raining-starss.neocities.org/dark%20(2).jpg">
