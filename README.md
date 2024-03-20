@@ -1,6 +1,8 @@
 <p align="center">
   <image src="https://media.discordapp.net/attachments/1036605748794363924/1203310001809133648/wJiqnvsf215aQAAAABJRU5ErkJggg.png?ex=65fec544&is=65ec5044&hm=c8d8f97c30822f86d30aebf02c20757635f1acbecd7dd049924098271213af00&=&format=webp&quality=lossless&width=290&height=316">
-</p>
+<image src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/93cb2394-db3d-4c6f-8393-d493a2aa1323/dfqpuig-0df4ac5b-1bea-46d0-8afc-58bc87b0d968.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzkzY2IyMzk0LWRiM2QtNGM2Zi04MzkzLWQ0OTNhMmFhMTMyM1wvZGZxcHVpZy0wZGY0YWM1Yi0xYmVhLTQ2ZDAtOGFmYy01OGJjODdiMGQ5NjgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.cCnKiTl_UneMf2RYE_iIJRzetS8jDTN6SxJw8CERCTI">
+  </p>
+
 
 
 <p align="center">
