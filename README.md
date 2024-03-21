@@ -1,4 +1,10 @@
+
 <p align="center">
+  try to describeeeee the voices in your head, theyre hard to disguiiiise
+  to somebody sad, come back to eaaaaarth
+  youve gone too far, this time they cut you too deeeeeep
+  
+  
   <image src="https://media.discordapp.net/attachments/1036605748794363924/1203310001809133648/wJiqnvsf215aQAAAABJRU5ErkJggg.png?ex=65fec544&is=65ec5044&hm=c8d8f97c30822f86d30aebf02c20757635f1acbecd7dd049924098271213af00&=&format=webp&quality=lossless&width=290&height=316">
 
   </p>
