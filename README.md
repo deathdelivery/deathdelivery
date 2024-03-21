@@ -1,7 +1,9 @@
 
 <p align="center">
   try to describeeeee the voices in your head, theyre hard to disguiiiise
+  <br>
   to somebody sad, come back to eaaaaarth
+  <br>
   youve gone too far, this time they cut you too deeeeeep
   
   
