@@ -37,9 +37,8 @@ could be sleeping or afk most of the time
 <image  src="https://epic.crd.co/assets/images/gallery02/213665da.gif?v=b52a0828">
 <br>
 <image src="https://c.tenor.com/ip04wGqjCKcAAAAC/tenor.gif">
-<image src="https://discord.com/channels/853915169730199582/1036605748794363924/1222314864949854260">
 
-
+[![Watch the video](https://i.stack.imgur.com/Vp2cE.png)](https://discord.com/channels/853915169730199582/1036605748794363924/1222314864949854260)
 </p>
 </p>
 
