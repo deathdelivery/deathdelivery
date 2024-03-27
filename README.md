@@ -1,5 +1,7 @@
 
 <p align="center">
+  <image src="https://upload.wikimedia.org/wikipedia/commons/b/b8/Caprisun_logo.png">
+    <br>
   try to describeeeee the voices in your head, theyre hard to disguiiiise
   <br>
   to somebody sad, come back to eaaaaarth
