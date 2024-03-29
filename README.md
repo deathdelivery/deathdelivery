@@ -16,7 +16,6 @@
 
 
 <p align="center">
-
 feel free to int! i love meeting new people and making new friends!
 <br>
 could be sleeping or afk most of the time
