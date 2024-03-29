@@ -18,6 +18,7 @@
 <p align="center">
 have you guys seen the panel where kabru and laios had a sloppy make out session
   <br>
+  <br>
 feel free to int! i love meeting new people and making new friends!
 <br>
 could be sleeping or afk most of the time
