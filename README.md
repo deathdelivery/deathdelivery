@@ -1,6 +1,6 @@
 
 <p align="center">
-<image src="https://images-ext-1.discordapp.net/external/jZSU20ZtVFIVLB4NFtH83_iRHdeLAWiAicZumFdqazI/%3F51252004731/https/www7.lunapic.com/editor/working/170927294182979146?format=webp&width=448&height=252">
+<image src="https://images-ext-1.discordapp.net/external/jZSU20ZtVFIVLB4NFtH83_iRHdeLAWiAicZumFdqazI/%3F51252004731/https/www7.lunapic.com/editor/working/170927294182979146?format=webp&width=448&height=252](https://www7.lunapic.com/do-not-link-here-use-hosting-instead/170927294182979146?31249572038)">
 
 <!--
 **deathdelivery/deathdelivery** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
