@@ -6,8 +6,7 @@
 <br>
 <image src="https://caterpie.crd.co/assets/images/gallery22/24dcc14e.gif?v=f7b7a140">
 <br>
-<br>
-<image src="https://pbs.twimg.com/media/F2BLCpzagAAszli.jpg">
+
 <br>
 me, 20,000 dollars in debt from gambling . . a billion zillion gillion dollars 🤤🤤
 <br>
