@@ -2,7 +2,7 @@
 <p align="center">
 <image src="https://www7.lunapic.com/do-not-link-here-use-hosting-instead/170927294182979146?31249572038">
 <br>
-<image src="https://media.discordapp.net/attachments/1205244082428059668/1217499674043220080/IMG_5360.png?ex=6616b4ee&is=66043fee&hm=eae0007a881726eb50162cd07c86ef11b71d5ccd003e3aa02edc977a6e60db8e&=&format=webp&quality=lossless&width=432&height=200">
+
 
 <!--
 **deathdelivery/deathdelivery** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
