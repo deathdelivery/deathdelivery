@@ -4,7 +4,7 @@
 <br>
 <image src="https://media.discordapp.net/attachments/1205244082428059668/1217498628118286337/vsklh8_1.png?ex=6616b3f4&is=66043ef4&hm=c0889477fae339349015ec13ee7d8741dbc2cb38f180026601126d3fcd4b1520&=&format=webp&quality=lossless&width=192&height=24">
 <br>
-<image src="https://caterpie.crd.co/assets/images/gallery22/815fba00.gif?v=f7b7a140">
+<image src="https://caterpie.crd.co/assets/images/gallery22/815fba00.gif?v=f7b7a140.gif">
 
 
 
