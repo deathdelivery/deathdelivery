@@ -1,11 +1,6 @@
 
 <p align="center">
-♪  I will never
-  <br>
-Free you◞
-  <br>
-Hand in hand
-  <br>
+
 <image src="https://media.discordapp.net/attachments/1079058779557077062/1225541867936944268/image.png?ex=662181ce&is=660f0cce&hm=8bfa7f32e96888faab648e696c35b454084e68266e018de4b420238aa4cc3f73&=&format=webp&quality=lossless&width=504&height=688">
 <br>
 <image src="https://media.discordapp.net/attachments/1205244082428059668/1217498628118286337/vsklh8_1.png?ex=6616b3f4&is=66043ef4&hm=c0889477fae339349015ec13ee7d8741dbc2cb38f180026601126d3fcd4b1520&=&format=webp&quality=lossless&width=192&height=24">
