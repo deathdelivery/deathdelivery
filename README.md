@@ -11,8 +11,9 @@
 
 
 <br>
-me, 20,000 dollars in debt from gambling . . a billion zillion gillion dollars 🤤🤤
+this is a ludicrous ! im a lone wolf! this pathetic hairless thing is an embarrassment!!
 <br>
+hey! watch your mouth wise guy
 
 
 
