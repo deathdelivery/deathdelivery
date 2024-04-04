@@ -13,11 +13,8 @@ me, 20,000 dollars in debt from gambling . . a billion zillion gillion dollars ð
 
 
 <br>
-<image src="https://caterpie.crd.co/assets/images/gallery27/038496a4.png?v=f7b7a140">
-<br>
-<image src="https://caterpie.crd.co/assets/images/gallery31/a57967ec.gif?v=f7b7a140">
-<br>
-<image src="https://caterpie.crd.co/assets/images/gallery13/33bc8345.png?v=f7b7a140">
+<image src="https://caterpie.crd.co/assets/images/gallery16/bf965cb8.gif?v=f7b7a140">
+
 
 
 <!--
