@@ -3,7 +3,7 @@
 
 <image src="https://media.discordapp.net/attachments/1036605748794363924/1225563647191941272/blur_edges.png?ex=66219617&is=660f2117&hm=8bb9b0f6baa41f5694b051ddd9704d3ad76c655bf65de5b7763c8dd946e26cfb&=&format=webp&quality=lossless&width=403&height=550">
 <br>
-<image src="https://media.discordapp.net/attachments/1036605748794363924/1223851285548236840/56VdjVMTIjuXTBjOealYLAaMYnYLwDQkcsU0PJY5RNGANgA8jHYHySWI6Z8XUwfgsGrn6sGVqKBaIbpka8mLJRMpgShtVvUbZGqE1JCpYU35Bf0HtF74w9deWNaQfFx7o3ptacRSCOwqyLwX3ZEeIDttS1VAAAAAElFTkSuQmCC.png?ex=661b5b54&is=6608e654&hm=cfa575c14ca3587c7641d60474ee4b8f69b29eeb6949119e7f88eaef7a8d5a30&=&format=webp&quality=lossless&width=1205&height=86">
+<image src="https://caterpie.crd.co/assets/images/gallery09/627bb48a.gif?v=f7b7a140">
 <br>
 
 
