@@ -20,6 +20,8 @@ hey! watch your mouth wise guy
 
 <br>
 <image src="https://media.discordapp.net/attachments/1036605748794363924/1225565837629591632/56VdjVMTIjuXTBjOealYLAaMYnYLwDQkcsU0PJY5RNGANgA8jHYHySWI6Z8XUwfgsGrn6sGVqKBaIbpka8mLJRMpgShtVvUbZGqE1JCpYU35Bf0HtF74w9deWNaQfFx7o3ptacRSCOwqyLwX3ZEeIDttS1VAAAAAElFTkSuQmCC.png?ex=66219821&is=660f2321&hm=9ddf4e91afc48f8b78bd46483da8fa5413fbdfb675296921601c9c6952b87cec&=&format=webp&quality=lossless&width=1205&height=86">
+<br>
+<image src="https://images-ext-1.discordapp.net/external/i7eLAMPfPoOs4z555A9mp6lw8q9a_OKW6wJssy4D3zg/https/media.tenor.com/hz2NnMwcmrgAAAPo/delicious-in-dungeon-dungeon-meshi.mp4">
 
 
 
