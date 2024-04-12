@@ -11,9 +11,9 @@
 
 
 <br>
-this is a ludicrous ! im a lone wolf! this pathetic hairless thing is an embarrassment!!
+why are oranges called oranges but an apple is not called red
 <br>
-hey! watch your mouth wise guy
+
 <br>
 
 
