@@ -15,7 +15,7 @@
 
 
 <br>
-why are oranges called oranges but an apple is not called red
+why are oranges called oranges but an apple is not called red <image src="https://images-ext-1.discordapp.net/external/nY_JGbTf1EJsMcggUPlAPlofG1dkKGxu0tWqTKt6HMs/http/img1.coolspacetricks.com/images/smiles/big_smiles/25.gif">
 <br>
 
 <br>
