@@ -21,8 +21,7 @@ why are oranges called oranges but an apple is not called red
 
 
 
-<br>
-<image src="https://caterpie.crd.co/assets/images/gallery13/d41e2139.gif?v=f7b7a140">
+
 
 
 
