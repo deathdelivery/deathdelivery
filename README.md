@@ -1,6 +1,6 @@
 
 <p align="center">
-  <image src="https://media.discordapp.net/attachments/1213766785061359617/1218211249817649204/bowdivder.png?ex=6634fb23&is=66228623&hm=62b56f08bad9dbf2fb4a8be963ee9a24bdd01f303f1f5e6229f10dbc59c60390&=&format=webp&quality=lossless&width=1319&height=549">
+  <image src="https://files.catbox.moe/uqt6sk.jpg">
   
 
 
