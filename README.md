@@ -2,10 +2,10 @@
 <p align="center">
   <image src="https://files.catbox.moe/uqt6sk.jpg">
   <br>
-  Dinda kanda pergi hanya
-Seketika cuma
-Inikan semua demi
-Masa depan kita
+  Dinda kanda pergi hanya◞
+ Seketika cuma◞
+ Inikan semua demi◞
+ Masa depan kita◞
   
 
 
