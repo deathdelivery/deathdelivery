@@ -20,7 +20,7 @@
 
 
 
-$${\color{lightblue} he / it}$$
+$${\color{lightyellow} he / it}$$
 <br>
 <p align="center">
 why are oranges called oranges but an apple is not called red <image src="https://files.catbox.moe/6fjuhr.gif"> 
