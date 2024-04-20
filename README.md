@@ -13,7 +13,7 @@
 
 
 
-
+color{blue}{is \ \ a \ \ paragraph} 
 <br>
 why are oranges called oranges but an apple is not called red <image src="https://files.catbox.moe/6fjuhr.gif"> 
 <br>
