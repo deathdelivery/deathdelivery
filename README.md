@@ -4,10 +4,10 @@
   <br>
     ♫ 
     <br>
-  Dinda kanda pergi hanya◞
+ $${\color{lightblue} Dinda kanda pergi hanya◞
  Seketika cuma◞
  Inikan semua demi◞
- Masa depan kita◞
+ Masa depan kita◞}$$
   
 
 
