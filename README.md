@@ -15,6 +15,7 @@
 
 $${\color{baby blue} he / it}$$
 <br>
+<p align="center">
 why are oranges called oranges but an apple is not called red <image src="https://files.catbox.moe/6fjuhr.gif"> 
 <br>
 <image src="https://caterpie.crd.co/assets/images/gallery19/6ddaf297.png?v=f7b7a140">
