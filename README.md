@@ -1,7 +1,6 @@
 
 <p align="center">
   <image src="https://files.catbox.moe/uqt6sk.jpg">
-  <br>
     <p align="center">
     ♫ 
     <br>
@@ -9,7 +8,6 @@
  Seketika cuma◞
  Inikan semua demi◞
  Masa depan kita◞}$$
- <br>
  <p align="center">
   
 
