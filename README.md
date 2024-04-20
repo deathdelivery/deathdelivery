@@ -2,6 +2,7 @@
 <p align="center">
   <image src="https://files.catbox.moe/uqt6sk.jpg">
   <br>
+    $${\color{lightblue} ♫ ♫}$$
   Dinda kanda pergi hanya◞
  Seketika cuma◞
  Inikan semua demi◞
