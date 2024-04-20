@@ -13,7 +13,7 @@
 
 
 
-$\mathscr{\color{blue}{is \ \ a \ \ paragraph} 
+$\mathscr{\color{red}{this} \ \ \color{blue}{is \ \ a \ \ paragraph} \ \ \color{yellow}{in \ \ another \ \ font}}$
 <br>
 why are oranges called oranges but an apple is not called red <image src="https://files.catbox.moe/6fjuhr.gif"> 
 <br>
