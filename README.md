@@ -9,6 +9,7 @@
  Inikan semua demi◞
  Masa depan kita◞}$$
  <br>
+ <p align="center">
   
 
 
