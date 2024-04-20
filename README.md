@@ -13,7 +13,7 @@
 
 
 
-
+$\textcolor{cerulean}{\he/it} \ \textcolor{darkgray}{workaround \ found \ by \ Dassalem \ Mohammed \ Yasser}$
 <br>
 why are oranges called oranges but an apple is not called red <image src="https://files.catbox.moe/6fjuhr.gif"> 
 <br>
