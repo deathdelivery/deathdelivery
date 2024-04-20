@@ -5,7 +5,7 @@
     <p align="center">
     ♫ 
     <br>
- $${\color{lightcyan} Dinda kanda pergi hanya◞
+ $${\color{lightblue} Dinda kanda pergi hanya◞
  Seketika cuma◞
  Inikan semua demi◞
  Masa depan kita◞}$$
