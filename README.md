@@ -2,6 +2,8 @@
 <p align="center">
 
 <image src="https://media.discordapp.net/attachments/1036605748794363924/1225685194355511376/Olimar_SSB4.png?ex=662e8d8a&is=662d3c0a&hm=3dd9a0d1ab47cab1df627eb386d13f9c2c8551631af7ad92e45ac53b9dd7f265&=&format=webp&quality=lossless">
+<br>
+<image src="https://caterpie.crd.co/assets/images/gallery19/dd69d6e0.png?v=f7b7a140">
 
 
 
