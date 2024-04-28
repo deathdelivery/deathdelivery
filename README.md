@@ -1,30 +1,6 @@
 
 <p align="center">
-  <image src="https://files.catbox.moe/uqt6sk.jpg">
-    <br>
-    ♫ 
-    <br>
-  IM B5 AND ILL MAKE YOU FEEL ALIVE!
-  <br>
-  
-<image src="https://media.discordapp.net/attachments/1036605748794363924/1231003688022048918/wFXWaiAtpya5QAAAABJRU5ErkJggg.png?ex=66356086&is=6622eb86&hm=a528d68eddaf5a338ccec3fb95387da4c34495ca040ce32a165b7b3469966f90&=&format=webp&quality=lossless&width=688&height=688">
-
-  
-<br>
-<image src="https://caterpie.crd.co/assets/images/gallery16/bf965cb8.gif?v=f7b7a140">
-<br>
-
-
-
-$${\color{lightyellow} he / it}$$
-<br>
-<p align="center">
-why are oranges called oranges but an apple is not called red <image src="https://files.catbox.moe/6fjuhr.gif"> 
-<br>
-<image src="https://caterpie.crd.co/assets/images/gallery19/6ddaf297.png?v=f7b7a140">
-
-
-<br>
+<image src="https://media.discordapp.net/attachments/1036605748794363924/1225685194355511376/Olimar_SSB4.png?ex=662e8d8a&is=662d3c0a&hm=3dd9a0d1ab47cab1df627eb386d13f9c2c8551631af7ad92e45ac53b9dd7f265&=&format=webp&quality=lossless">
 
 
 
