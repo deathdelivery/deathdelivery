@@ -12,7 +12,7 @@
    <br>
 <image  src="https://64.media.tumblr.com/026620b7ce821a24a34367e804fe4d0f/718672654d67bb63-3a/s540x810/1f958f6249acecfbdef116d01889a70e92f30854.gifv">
 <br>
-<image src="https://i.kym-cdn.com/entries/icons/original/000/044/006/gamblecore.jpg">
+
   
 
 
