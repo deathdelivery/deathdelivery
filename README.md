@@ -4,7 +4,7 @@
  <br>
  <image src="https://camo.githubusercontent.com/8e5c5238cf3a4b340c1f0886268170352478a741c464217c50835c3b50728319/68747470733a2f2f692e696d6775722e636f6d2f734852473638732e676966">
   <br>
-  <image src="hhttps://i.pinimg.com/originals/2f/cd/a1/2fcda157d85d927be9f9a7a371426b40.gif">
+  <image src="https://i.pinimg.com/originals/2f/cd/a1/2fcda157d85d927be9f9a7a371426b40.gif">
   <br>
 <image  src="https://64.media.tumblr.com/026620b7ce821a24a34367e804fe4d0f/718672654d67bb63-3a/s540x810/1f958f6249acecfbdef116d01889a70e92f30854.gifv">
   
