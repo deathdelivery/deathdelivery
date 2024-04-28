@@ -2,7 +2,7 @@
 <p align="center">
 <image src="https://i.imgur.com/RA7R9rm.png">
  <br>
- <image src="https://i.imgur.com/sHRG68s.gif">
+ <image src="https://camo.githubusercontent.com/8e5c5238cf3a4b340c1f0886268170352478a741c464217c50835c3b50728319/68747470733a2f2f692e696d6775722e636f6d2f734852473638732e676966">
   <br>
   <image src="https://i.pinimg.com/originals/2f/cd/a1/2fcda157d85d927be9f9a7a371426b40.gif">
   <br>
