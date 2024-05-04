@@ -1,5 +1,8 @@
 
 <p align="center">
+ <image src="https://media.discordapp.net/attachments/1223831626153332837/1236450617464066048/image.png?ex=66380ddf&is=6636bc5f&hm=7e2e7ff6ebaac60959a1f1463489f5ac93903bb8922cecd267bb4e7d3961c6ee&=&format=webp&quality=lossless">
+  AHHHHHHHHHH
+ <br>
 <image src="https://i.imgur.com/RA7R9rm.png">
  <br>
  <image src="https://camo.githubusercontent.com/8e5c5238cf3a4b340c1f0886268170352478a741c464217c50835c3b50728319/68747470733a2f2f692e696d6775722e636f6d2f734852473638732e676966">
