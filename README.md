@@ -1,5 +1,5 @@
 <p align="center">
-  <image src="https://wilardo.crd.co/assets/images/gallery05/4d3bb822.png?v=e670c4e7">
+  <image src="https://images-ext-1.discordapp.net/external/jhXNfs0vcdT5euqNgKNoxeBv62ggeZergeJPCxYmhSE/https/66.media.tumblr.com/0820103e5f311e35fb3fd89f6a92f9ee/tumblr_mrcf6rxOVo1rfjowdo1_500.gif">
   <br>
 
 <image src="https://media.discordapp.net/attachments/1036605748794363924/1236563124216270949/c65fb333.png?ex=663876a7&is=66372527&hm=4fc5cbd7e453ff697f3b4d1875c54d8f73e79f1f4bf26e97144553fa95e1dab8&=&format=webp&quality=lossless">
