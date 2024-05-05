@@ -1,7 +1,7 @@
 <p align="center">
 <image src="https://media.discordapp.net/attachments/1036605748794363924/1236551626827890718/fPPai67.png?ex=66386bf1&is=66371a71&hm=72ac8a7e0d0b9cfb80fe392c1bdf3d20ad49f718fbfb1fe2830453f165818c41&=&format=webp&quality=lossless">
 <br>
-<image src="https://media.discordapp.net/attachments/1036605748794363924/1236549872207794176/latest.png?ex=66386a4f&is=663718cf&hm=b9a9a8a8f373ae0e26a87564d9cb5a675d910eddfca1dd12662e5dc9a1b04f4d&=&format=webp&quality=lossless&width=887&height=688">
+<image src="https://images-ext-1.discordapp.net/external/vDfuKXWxlyOGsSLi2lvqLFL9rlPergXdR2ls08qN9i0/https/i.pinimg.com/originals/d6/8a/7e/d68a7e7c823855b15679ecf54880ff07.gif?width=688&height=688">
 
   
 
