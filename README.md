@@ -6,7 +6,7 @@
 <image src="https://wilardo.crd.co/assets/images/gallery22/c65fb333_original.png?v=87117d4a">
 <br>
   <br>
- <a href= ![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)>
+ <a href= ![](https://komarev.com/ghpvc/?username=deathdelivery&color=blue)>
   <br>
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=6000&pause=3000&color=29B5C5&background=88888800&center=true&repeat=false&random=false&width=435&lines=sending+death+.+.+." alt="Typing SVG" /></a>
   <br>
