@@ -1,9 +1,5 @@
 <p align="center">
-  DUDE
-  <br>
-  <image src="https://media.discordapp.net/attachments/1241461438539763754/1248504617633976390/image.png?ex=6663e808&is=66629688&hm=02b4243772877330dcff9a69075f6c287f77c4ced24deb669a1db232963652b7&=&format=webp&quality=lossless">
-
-  
+ <image src="https://minecraft.wiki/images/thumb/Sunflower_JE2_BE2.png/150px-Sunflower_JE2_BE2.png?7ca74">
 
 
 
