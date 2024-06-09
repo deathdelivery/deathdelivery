@@ -1,9 +1,8 @@
 <p align="center">
  <image src="https://static.wikia.nocookie.net/minecraftpocketedition/images/8/81/Sunflower.png/revision/latest?cb=20140427133157">
  <image src="https://static.wikia.nocookie.net/minecraftpocketedition/images/8/81/Sunflower.png/revision/latest?cb=20140427133157">
-
-
-
+<image src="https://static.wikia.nocookie.net/minecraftpocketedition/images/8/81/Sunflower.png/revision/latest?cb=20140427133157">
+<image src="https://static.wikia.nocookie.net/minecraftpocketedition/images/8/81/Sunflower.png/revision/latest?cb=20140427133157">
 
 
 
