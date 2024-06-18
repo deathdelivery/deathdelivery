@@ -1,9 +1,5 @@
 <p align="center">
- <image src="https://static.wikia.nocookie.net/minecraftpocketedition/images/8/81/Sunflower.png/revision/latest?cb=20140427133157">
- <image src="https://static.wikia.nocookie.net/minecraftpocketedition/images/8/81/Sunflower.png/revision/latest?cb=20140427133157">
-<image src="https://static.wikia.nocookie.net/minecraftpocketedition/images/8/81/Sunflower.png/revision/latest?cb=20140427133157">
-<image src="https://static.wikia.nocookie.net/minecraftpocketedition/images/8/81/Sunflower.png/revision/latest?cb=20140427133157">
-
+<image src="https://media.discordapp.net/attachments/948977907429158953/1252443291174174770/nohome2022.png?ex=66723c35&is=6670eab5&hm=90d8992ac12a8d15191bb49feabb90f4c49046c2f68eeeba66723a788023cf8f&=&format=webp&quality=lossless">
 
 
 
