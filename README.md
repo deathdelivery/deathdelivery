@@ -1,5 +1,5 @@
 <p align="center">
-spam attabook for a great time <image src="https://gifs.crd.co/assets/images/gallery23/f78e0082.gif?v=ef433a6f">
+spam attabook for a great time <image src="https://camo.githubusercontent.com/b451583960e637bc230ba3040151192d37b9c9cf48b728aecb4b5616fe47a1a0/68747470733a2f2f676966732e6372642e636f2f6173736574732f696d616765732f67616c6c65727932332f66373865303038322e6769663f763d6566343333613666">
   <br>
 <image src="https://file.garden/Zm6DoTp_JmY_nF1k/image_2024-06-25_060812318.png">
 
