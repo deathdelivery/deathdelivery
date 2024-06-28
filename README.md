@@ -1,7 +1,5 @@
 <p align="center">
-<s>
-  u
-</s>
+
 <image src="https://file.garden/Zm6DoTp_JmY_nF1k/image_2024-06-25_060812318.png">
 
 
