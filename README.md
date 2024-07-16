@@ -2,7 +2,7 @@
 spam attabook
 <image src="https://camo.githubusercontent.com/b451583960e637bc230ba3040151192d37b9c9cf48b728aecb4b5616fe47a1a0/68747470733a2f2f676966732e6372642e636f2f6173736574732f696d616765732f67616c6c65727932332f66373865303038322e6769663f763d6566343333613666">
   <br>
-![](https://komarev.com/ghpvc/?deathdelivery=your-github-username&color=grey)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=green)
   <br>
 <image src="https://file.garden/Zm6DoTp_JmY_nF1k/image_2024-06-25_060812318.png">
 
