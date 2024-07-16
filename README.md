@@ -1,4 +1,4 @@
- ![](https://komarev.com/ghpvc/?deathdelivery=deathdelivery&color=green)
+![](https://komarev.com/ghpvc/?username=&color=grey)
  <br>
 <p align="center">
 spam attabook
