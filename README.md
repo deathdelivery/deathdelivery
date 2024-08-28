@@ -3,7 +3,7 @@
 
 <image src="https://files.catbox.moe/uvqh0n.png">
 <br>
-<image src="https://media.tenor.com/ShuRbdOVj24AAAAM/mob-psycho100-mp100.gif">
+<image src="https://media.tenor.com/CIEGbBWW2bEAAAAM/mob-psycho100-mp100.gif">
 
 
 
