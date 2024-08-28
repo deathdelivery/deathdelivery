@@ -2,6 +2,8 @@
 <p align="center">
 
 <image src="https://files.catbox.moe/uvqh0n.png">
+<br>
+<image src="https://media.tenor.com/ShuRbdOVj24AAAAM/mob-psycho100-mp100.gif">
 
 
 
