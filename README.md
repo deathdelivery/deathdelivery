@@ -1,8 +1,6 @@
 
 <p align="center">
   
-
-![](https://dotesports.com/wp-content/uploads/2024/09/Mouthwashing-story-and-ending-explained.jpg?w=1200)
 ![](https://i.pinimg.com/originals/36/a4/23/36a4238d5db9285158267e95670149ca.gif)
 
 
