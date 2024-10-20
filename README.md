@@ -1,6 +1,6 @@
 <p align="center">
   
-![](https://files.catbox.moe/7zqyla.png)
+<img src="https://files.catbox.moe/7zqyla.png">
 
 
 
