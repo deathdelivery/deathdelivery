@@ -2,7 +2,7 @@
   
 <img src="https://files.catbox.moe/5mbon1.png">
 <br>
-Do you miss me, you sad lady?
+Im home, there's moonlight on the river, everybody dies
 
 
 
