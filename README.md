@@ -1,9 +1,8 @@
 
 <p align="center">
 Ganbare! Nakamura-kun!!
-  <br>
   
-![]https://files.catbox.moe/7zqyla.png
+![](https://files.catbox.moe/7zqyla.png)
 
 
 
