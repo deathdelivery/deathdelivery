@@ -1,7 +1,6 @@
 <p align="center">
 spam ATABOOK!
-<br>
-<img src="https://files.catbox.moe/5mbon1.png">
+
 <br>
 <img src="https://i.pinimg.com/736x/85/e7/95/85e79598dcea1bdd7bcb1e9ee7f8416f.jpg">
 
