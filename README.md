@@ -3,8 +3,6 @@
   <br>
 spam ATABOOK! 
 
-<br>
-<img src="https://xyz.crd.co/assets/images/gallery22/71544e41.gif?v=de6feabd">
 
 
 
