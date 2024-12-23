@@ -3,7 +3,7 @@ spam ATABOOK!
 <img src="https://wilardo.crd.co/assets/images/gallery29/167be314.gif?v=56e61566">
 
 <br>
-<img src="https://xyz.crd.co/assets/images/gallery07/bbf71883.gif?v=de6feabd">
+<img src="https://xyz.crd.co/assets/images/gallery07/d30965a5.gif?v=de6feabd">
 <br>
 <br>
 !
