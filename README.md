@@ -3,10 +3,10 @@ spam ATABOOK!
 <img src="https://wilardo.crd.co/assets/images/gallery29/167be314.gif?v=56e61566">
 
 <br>
-<img src="https://xyz.crd.co/assets/images/gallery22/086640a7.png?v=de6feabd">
+<img src="https://xyz.crd.co/assets/images/gallery07/bbf71883.gif?v=de6feabd">
 <br>
 <br>
-we with you a merry yaoimas and a happy new yuri!
+!
 
 
 
