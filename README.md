@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://r74.cooltext.com/rendered/cooltext472478038492518.gif">
+<img src="https://r73.cooltext.com/d.php?renderid=472478038473695&extension=gif">
   <br>
 <br>
 <img src="https://xyz.crd.co/assets/images/gallery07/d30965a5.gif?v=de6feabd">
