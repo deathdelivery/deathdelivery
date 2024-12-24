@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://r73.cooltext.com/d.php?renderid=472478038473695&extension=gif">
+<img src="https://media.discordapp.net/attachments/937243918968446996/1321260433033920522/cooltext472478038473695.gif?ex=676c972b&is=676b45ab&hm=1385cac5c192afdf72af0660988b5ec4aea734d83fb9de4fc2d9a6a904f68cda&=&width=671&height=53">
   <br>
 <br>
 <img src="https://xyz.crd.co/assets/images/gallery07/d30965a5.gif?v=de6feabd">
