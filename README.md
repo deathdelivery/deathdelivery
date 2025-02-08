@@ -8,6 +8,7 @@ you never wanted me that way ♪
 <img src="https://static.wikia.nocookie.net/id5/images/5/52/PhantomThievesOfHeartsCROWGraffitiSprite.png/revision/latest?cb=20241109171850">
 <br>
 <img src="https://watermelon.crd.co/assets/images/gallery21/fe47a72d.gif?v=6332de85">
+<img src="https://watermelon.crd.co/assets/images/gallery21/a65d0947.gif?v=6332de85">
 
 
 
