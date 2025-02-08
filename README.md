@@ -1,9 +1,8 @@
 <p align="center">
 
 <br>
-<img src="https://xyz.crd.co/assets/images/gallery07/d30965a5.gif?v=de6feabd">
-  <br>
-spam ATABOOK! 
+♪ did it all for you to say 
+you never wanted me that way ♪
 
 
 
