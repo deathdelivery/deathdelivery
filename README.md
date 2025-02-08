@@ -5,6 +5,8 @@
 <br>
 you never wanted me that way ♪
 
+<img src="https://static.wikia.nocookie.net/id5/images/5/52/PhantomThievesOfHeartsCROWGraffitiSprite.png/revision/latest?cb=20241109171850">
+
 
 
 
