@@ -9,7 +9,6 @@ you never wanted me that way ♪
 <br>
 <img src="https://watermelon.crd.co/assets/images/gallery21/fe47a72d.gif?v=6332de85">
 <img src="https://watermelon.crd.co/assets/images/gallery21/a65d0947.gif?v=6332de85">
-<img src="https://autism.crd.co/assets/images/gallery03/1618ad31_original.gif?v=d6547f5c">
 
 
 
