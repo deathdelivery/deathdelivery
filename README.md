@@ -1,6 +1,9 @@
 <p align="center">
 
 <br>
+currently inactive due to school 
+<br>
+<br>
 ♪ You break my back 
 <br>
 You won't break me ♪
