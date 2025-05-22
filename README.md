@@ -8,7 +8,7 @@ currently inactive due to school
 <br>
 You won't break me ♪
 <br>
-<img src="https://static.wikia.nocookie.net/id5/images/5/52/PhantomThievesOfHeartsCROWGraffitiSprite.png/revision/latest?cb=20241109171850">
+<img src="https://enchantments.carrd.co/assets/images/gallery20/fb15657d_original.png?v=5c8435d5">
 <br>
 <img src="https://watermelon.crd.co/assets/images/gallery21/fe47a72d.gif?v=6332de85">
 <img src="https://watermelon.crd.co/assets/images/gallery21/a65d0947.gif?v=6332de85">
