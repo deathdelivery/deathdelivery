@@ -8,7 +8,7 @@ currently inactive due to school
 <br>
 You won't break me ♪
 <br>
-<img src="https://enchantments.carrd.co/assets/images/gallery20/fb15657d_original.png?v=5c8435d5">
+<img src="https://xyz.crd.co/assets/images/gallery07/258ed523.gif?v=de6feabd">
 <br>
 <img src="https://watermelon.crd.co/assets/images/gallery21/fe47a72d.gif?v=6332de85">
 <img src="https://watermelon.crd.co/assets/images/gallery21/a65d0947.gif?v=6332de85">
