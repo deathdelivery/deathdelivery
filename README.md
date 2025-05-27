@@ -1,7 +1,7 @@
 <p align="center">
 
 <br>
-currently inactive due to school 
+mostly offtab playing adoptme 🤤🤤
 <br>
 <br>
 ♪ You break my back 
