@@ -8,7 +8,7 @@ I shy Ok
 <br>
 You won't break me ♪
 <br>
-<img src="https://xyz.crd.co/assets/images/gallery07/258ed523.gif?v=de6feabd">
+<img src="https://xyz.crd.co/assets/images/gallery16/8d27b9b7.gif?v=de6feabd">
 <br>
 <img src="https://watermelon.crd.co/assets/images/gallery21/fe47a72d.gif?v=6332de85">
 <img src="https://watermelon.crd.co/assets/images/gallery21/a65d0947.gif?v=6332de85">
