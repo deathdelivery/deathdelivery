@@ -12,9 +12,7 @@ You won't break me ♪
 <img src="https://xyz.crd.co/assets/images/gallery16/8d27b9b7.gif?v=de6feabd">
 <br>
 <br>
-<img src="https://watermelon.crd.co/assets/images/gallery21/fe47a72d.gif?v=6332de85">
-<img src="https://watermelon.crd.co/assets/images/gallery21/a65d0947.gif?v=6332de85">
-<img src="https://xyz.crd.co/assets/images/gallery20/b4972bde.gif?v=de6feabd">
+<img src="https://i.pinimg.com/736x/fd/34/d1/fd34d198c0b112e14cea59565b9aac30.jpg">
 
 
 
