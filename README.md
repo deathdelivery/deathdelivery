@@ -9,9 +9,7 @@ https://colormytree.me/2025/01JE774ZSWCC2KJVJ58E7K6XBH
 ♪ You break my back 
 <br>
 You won't break me ♪
-<br>
-<br>
-<img src="https://xyz.crd.co/assets/images/gallery16/8d27b9b7.gif?v=de6feabd">
+
 <br>
 <br>
 <img src="https://files.catbox.moe/kwtd8h.gif">
