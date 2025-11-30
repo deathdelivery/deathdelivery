@@ -10,8 +10,6 @@ https://colormytree.me/2025/01JE774ZSWCC2KJVJ58E7K6XBH
 <br>
 You won't break me ♪
 <br>
-<img src="https://enchantments.carrd.co/assets/images/gallery14/1afe58c6_original.png?v=5c8435d5">
-<br>
 <br>
 <img src="https://files.catbox.moe/kwtd8h.gif">
 
