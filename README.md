@@ -1,9 +1,6 @@
 <p align="center">
 
-<br>
-sign my tree! 
-<br>
-https://colormytree.me/2025/01JE774ZSWCC2KJVJ58E7K6XBH
+
 <br>
 <br>
 ♪ 'Til I'm bloody and bruised
