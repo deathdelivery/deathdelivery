@@ -1,14 +1,14 @@
 <p align="center">
+<br>
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Coral+Pixels&pause=10&color=F70000&center=true&width=435&lines=Everything+all+of+the+line;Here+I'm+alive)](https://git.io/typing-svg)
 
 <br>
 <br>
-♪ 'Til I'm bloody and bruised
-<br>
-'Til I've broken my bones ♪
+
 <br>
 <br>
-<img src="https://i.pinimg.com/originals/75/98/2c/75982c1543e40e82885753249254341b.gif">
+
 <br>
 <br>
 
