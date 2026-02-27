@@ -3,6 +3,10 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Coral+Pixels&pause=10&color=F70000&center=true&width=435&lines=Everything+all+of+the+line;Here+I'm+alive)](https://git.io/typing-svg)
 
+[rentry](https://rentry.co/quietplz) [ata](https://deathdelivery.atabook.org/)
+
+
+
 <br>
 <br>
 
