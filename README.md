@@ -5,7 +5,10 @@
 
 <p align="center">
   
-[rentry](https://rentry.co/quietplz) ⠀⠀[ata](https://deathdelivery.atabook.org/)
+<p align="center"> 
+  <br>
+
+  
 
 
 
