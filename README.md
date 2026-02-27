@@ -1,16 +1,15 @@
 <p align="center">
-<br>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Coral+Pixels&pause=10&color=F70000&center=true&width=435&lines=Everything+all+of+the+line;Here+I'm+alive)](https://git.io/typing-svg)
+
+</p> 
 
 <p align="center">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=czytjgy9qs1pdf3qatbz24mtj&cover_image=true&theme=novatorem&show_offline=false&background_color=616161&interchange=false&profanity=false&bar_color=5eafb0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<p align="center">
-  
-<p align="center"> 
-  <br>
+</p>
+
 
   
 
