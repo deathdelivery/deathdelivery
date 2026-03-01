@@ -1,22 +1,16 @@
 <div align="center">
+ <table>
+    <tr></tr>
+    <td> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=18&duration=2800&pause=300&color=4E26AE&center=true&vCenter=true&width=435&lines=and+despite+all+this+I+still+have+one+more+problem;Saps;despite+the+bounties+on+his+head;despite+using+MY+bridge;despite+scores+of+assassins;despite+trap+after+trap;despite+the+whole+wrld+turning+againts+him;HE+WILL+NOT+DIE" alt="Typing SVG" /></a> </td>
+       </tr>
+        
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Coral+Pixels&pause=10&color=F70000&center=true&width=435&lines=Everything+all+of+the+line;Here+I'm+alive)](https://git.io/typing-svg)
-
-</p> 
-
-<p align="center">
-  </p> 
-  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=czytjgy9qs1pdf3qatbz24mtj&cover_image=true&theme=default&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=4eb193&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=czytjgy9qs1pdf3qatbz24mtj&redirect=true)
 
 </p>
 
 
   
 
-
-
-<br>
 <br>
 
 <br>
