@@ -1,7 +1,7 @@
 <div align="center">
- <img src="https://media.discordapp.net/attachments/1441333846154018927/1479642436908089447/Illustration42.png?ex=69acc7e7&is=69ab7667&hm=26ff572b978bda9d232260ce71ae18383406bbcd21571719cefd43fb23811022&=&format=webp&quality=lossless&width=894&height=671"width="350"<
+ <img src="https://media.discordapp.net/attachments/1441333846154018927/1479642436908089447/Illustration42.png?ex=69acc7e7&is=69ab7667&hm=26ff572b978bda9d232260ce71ae18383406bbcd21571719cefd43fb23811022&=&format=webp&quality=lossless&width=894&height=671"width="250"<
  <table>
- <td> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=18&duration=2800&pause=300&color=4E26AE&center=true&vCenter=true&width=435&lines=and+despite+all+this+I+still+have+one+more+problem;Saps;despite+the+bounties+on+his+head;despite+using+MY+bridge;despite+scores+of+assassins;despite+trap+after+trap;despite+the+whole+wrld+turning+againts+him;HE+WILL+NOT+DIE" alt="Typing SVG" /></a> </td>
+ <td> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&size=18&duration=1000&pause=800&color=DCF7D1&center=true&width=500&height=100&lines=So+i+get+up+this+morning;and+normally+the+first+thing+i+usually+say+to+my+coworkers+is;%22Hey+guys+hows+it+going%3F%22;well+one+of+my+coworkers+decided+to+ask+me+today;%22Hey+dude%2C+you're+into+fitness%3F%22;I+was+like+%22Yeah+dude+what's+up+man%3F%22;He's+like+%22fit+this+little+weiner+in+your+mouth+erp+erp+erp+erp%22;I+said+%22WHY++WOULD+YOU+ASK+ME+THAT%22" alt="Typing SVG" /></a> <td></td>
     
     
         
