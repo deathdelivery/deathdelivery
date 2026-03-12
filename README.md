@@ -6,7 +6,10 @@
   </p>
  <img src="https://media.discordapp.net/attachments/1441333846154018927/1479649699446259863/Illustration42.png?ex=69acceaa&is=69ab7d2a&hm=ab0857f383546a56a5d88227dfcc0d86d8564513f1fd41cb22cead10758a1d6c&=&format=webp&quality=lossless&width=894&height=671"width="500">
 
- <img src="https://minecraft.wiki/images/Wolf_shaking.gif?ecab8">
+i do commissions and sell adoptables from time to time.. hit me up if you are interested
+<p></p>
+
+[toyhouse](https://toyhou.se/vegiey4) [comm infos](https://milkmin.carrd.co/)
  
     
     
