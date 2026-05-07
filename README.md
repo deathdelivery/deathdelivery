@@ -5,9 +5,7 @@
  
   </p>
 
- i get on ponytown once in a blue moon 
-
- ![](https://media.discordapp.net/attachments/1393915932551675926/1499972379890286602/Screenshot_2026-04-23_095351.png?ex=69f6bda3&is=69f56c23&hm=ff7098128bc246a0daeea982b4539fd2e524f0e98c6d56ca5c4258b92c35c8be&=&format=webp&quality=lossless&width=771&height=421)
+my chats are turned off most of the time , w2int or atabook Ok? 
  
     
     
