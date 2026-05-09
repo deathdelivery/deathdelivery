@@ -6,6 +6,7 @@
   </p>
 
  w2int or atabook Ok? feel free to int Ok? be my friend Ok?
+ im offtab playing games or doing other things, wont respond immedaitly 
  
     
     
