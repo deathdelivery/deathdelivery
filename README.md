@@ -5,7 +5,7 @@
  
   </p>
 
-my chats are turned off most of the time , w2int or atabook Ok? 
+ w2int or atabook Ok? feel free to int Ok? be my friend Ok?
  
     
     
