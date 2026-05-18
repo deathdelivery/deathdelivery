@@ -8,6 +8,8 @@
  w2int or atabook Ok? feel free to int Ok? be my friend Ok?
  </p>
  im offtab playing games or doing other things or watching youtube or watching youtube or watching youtube, wont respond immedaitly 
+ </p>
+ i crawl into peoples strawpage/atabook from timeto time
  
     
     
