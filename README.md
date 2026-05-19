@@ -1,16 +1,11 @@
 <div align="center">
  
 
- <td> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&size=18&duration=1000&pause=800&color=DCF7D1&center=true&width=500&height=40&lines=So+i+get+up+this+morning;and+normally+the+first+thing+i+usually+say+to+my+coworkers+is;%22Hey+guys+hows+it+going%3F%22;well+one+of+my+coworkers+decided+to+ask+me+today;%22Hey+dude%2C+you're+into+fitness%3F%22;I+was+like+%22Yeah+dude+what's+up+man%3F%22;He's+like+%22fit+this+little+weiner+in+your+mouth+erp+erp+erp+erp%22;I+said+%22WHY++WOULD+YOU+ASK+ME+THAT%22" alt="Typing SVG"width=450px /></a> <td></td>
+ <img src="https://i.pinimg.com/736x/cc/20/6d/cc206d982d0228eab8e7f844e9cf8b88.jpg"> 
  
   </p>
 
- w2int or atabook Ok? feel free to int Ok? be my friend Ok?
- </p>
- im offtab playing games or doing other things or watching youtube or watching youtube or watching youtube, wont respond immedaitly 
- </p>
- i crawl into peoples strawpage/atabook from timeto time
- 
+
     
     
         
