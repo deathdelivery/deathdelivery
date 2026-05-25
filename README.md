@@ -1,7 +1,10 @@
 <div align="center">
  
-
- <img src="https://i.pinimg.com/736x/cc/20/6d/cc206d982d0228eab8e7f844e9cf8b88.jpg"> 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=czytjgy9qs1pdf3qatbz24mtj&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76ada6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<p>
+ 
+</p>
+ <img src="https://limitlesstcg.nyc3.cdn.digitaloceanspaces.com/tpci/BLK/BLK_132_R_EN_SM.png"> 
  
   </p>
 
