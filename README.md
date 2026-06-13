@@ -3,7 +3,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=czytjgy9qs1pdf3qatbz24mtj&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76ada6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
  
 </p>
- <img src="https://files.catbox.moe/yegvk2.png"width="600" height="400"> 
+ <img src="https://files.catbox.moe/yegvk2.png"> 
  
   </p>
   
