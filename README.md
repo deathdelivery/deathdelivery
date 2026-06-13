@@ -1,14 +1,12 @@
 <div align="center">
  
-
-<p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=czytjgy9qs1pdf3qatbz24mtj&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76ada6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
  
 </p>
  <img src="https://files.catbox.moe/yegvk2.png"> 
  
   </p>
   
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=czytjgy9qs1pdf3qatbz24mtj&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76ada6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <p></p>
 
 ![](https://komarev.com/ghpvc/?username=deathdelivery&color=7d93c9&label=packages&abbreviated=true&style=plastic)
