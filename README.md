@@ -1,15 +1,19 @@
 <div align="center">
+
+
+ <p></p>
+ 
+ ![](https://komarev.com/ghpvc/?username=deathdelivery&color=7d93c9&label=packages&abbreviated=true&style=plastic)
+ <p></p>
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=czytjgy9qs1pdf3qatbz24mtj&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76ada6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 </p>
  <img src="https://files.catbox.moe/heebrb.gif"> 
+ <p></p>
+ Hi pls int whenever Ok? whispers preferred cus im offtab playing adoptme most of the time. i Ok with c+h so feel free to drop by and just sit beside me or anything. Im usually on pt to make ponies or just to #chill with da oomfs. I usually enjoy making new friends but i get super shy so most of the time early interactions will be hella akward.. i sorry.. but i will eventually warm up and get comfortable if you give me enough time and space Okkkk 😉 I rarely interact first unless were super duper close like a bunch of bros ( #rhyme )
  
-  </p>
-  
-<p></p>
 
-![](https://komarev.com/ghpvc/?username=deathdelivery&color=7d93c9&label=packages&abbreviated=true&style=plastic)
 
     
     
